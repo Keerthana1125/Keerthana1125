@@ -1,4 +1,4 @@
-# Hi there! 👋 I'm Reddi Keerthana
+# Hi there! 👋 I'm REDDI KEERTHANA
 
 **🎓 B.Tech CSE - AI Student | 🚀 Full Stack Developer | 🤖 AI/ML Enthusiast**
 
